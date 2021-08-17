@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @arkesia
-- 👀 I'm a HR Program manager @github. Lover of **Marvel, Star Wars and Star Trek** franchises. Cooking is my meditation 📿 Dog Mom to Gambit & Rogue.  🐕 🧑‍🍳 🦸‍♀️ 🌠
+- 👀 I'm a HR Program manager @github. Lover of **Marvel, Star Wars and Star Trek** franchises. Cooking is my meditation 📿 Dog Mom 🐕 🧑‍🍳 🦸‍♀️ 🌠
 - 🌱 I’m currently learning GitHub Project
 - 💞️ I’m looking to collaborate on improving the HRX (HR Experience)
 - 📫 How to reach me arkesia@github.com
